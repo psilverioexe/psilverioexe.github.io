@@ -1,6 +1,7 @@
 #Pedro Thiago Cristyan Silvério 
 
 Analista de CRM | Marketing | Automação | Jornada do Cliente | Planejamento 
+
 Santo André - SP • (11) 94974-8349 • psilverioo@gmail.com • linkedin.com/in/psilverioexe/ 
 
 ##Resumo Profissional 
@@ -13,7 +14,7 @@ Estratégia de CRM • Copywriting • Automação de Marketing • Marketing Di
 
 ##Experiência Profissional 
 
-**Analista de CRM Jr | CVC Brasil | mai/2025 – Atual**
+###Analista de CRM Jr | CVC Brasil | mai/2025 – Atual
 
 • Participação na implantação dos Canais de Transmissão no Instagram e WhatsApp: mais de 25 mil seguidores no Instagram (crescimento orgânico médio de 2%/semana) e 9 mil no WhatsApp (crescimento de 4%/semana e CTR médio de 5%). 
 
@@ -27,7 +28,7 @@ Estratégia de CRM • Copywriting • Automação de Marketing • Marketing Di
 
 • Monitoramento de indicadores de desempenho (KPIs), análise de performance das campanhas e geração de insights para otimização contínua das estratégias de CRM, automação de marketing e comunicação. 
 
-**Analista de Marketing | R11 Travel | jul/2024 – abr/2025** 
+###Analista de Marketing | R11 Travel | jul/2024 – abr/2025
 
 • Planejamento e criação de campanhas de e-mail marketing para marcas do segmento de cruzeiros, com personalização por perfil de cliente, produto e sazonalidade. 
 
@@ -37,7 +38,7 @@ Estratégia de CRM • Copywriting • Automação de Marketing • Marketing Di
 
 • Gestão de aproximadamente 25 campanhas mensais de e-mail marketing, com atuação em segmentação, personalização, testes de assuntos (subject lines) e análise de KPIs, aplicando otimizações contínuas que elevaram a taxa média de abertura de 24% para 31% em um ano. 
 
-**Consultor de Cruzeiros | R11 Travel | mar/2023 – jul/2024** 
+###Consultor de Cruzeiros | R11 Travel | mar/2023 – jul/2024
 
 • Atendimento consultivo a clientes por telefone, WhatsApp e e-mail, acompanhando a jornada de compra de cruzeiros marítimos do Grupo Royal Caribbean, desde a identificação das necessidades até o embarque. 
 
