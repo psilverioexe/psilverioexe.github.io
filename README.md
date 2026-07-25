@@ -38,7 +38,7 @@ Estratégia de CRM • Copywriting • Automação de Marketing • Marketing Di
 
 • Gestão de aproximadamente 25 campanhas mensais de e-mail marketing, com atuação em segmentação, personalização, testes de assuntos (subject lines) e análise de KPIs, aplicando otimizações contínuas que elevaram a taxa média de abertura de 24% para 31% em um ano. 
 
-###Consultor de Cruzeiros | R11 Travel | mar/2023 – jul/2024
+### Consultor de Cruzeiros | R11 Travel | mar/2023 – jul/2024
 
 • Atendimento consultivo a clientes por telefone, WhatsApp e e-mail, acompanhando a jornada de compra de cruzeiros marítimos do Grupo Royal Caribbean, desde a identificação das necessidades até o embarque. 
 
@@ -46,9 +46,9 @@ Estratégia de CRM • Copywriting • Automação de Marketing • Marketing Di
 
 ## Formação 
 
-• Bacharelado em Turismo | Centro Universitário FAM | Concluído em 2022 
+### • Bacharelado em Turismo | Centro Universitário FAM | Concluído em 2022 
 
-• Técnico em Comunicação Visual | ETEC José Rocha Mendes | Concluído em 2014 
+### • Técnico em Comunicação Visual | ETEC José Rocha Mendes | Concluído em 2014 
 
 ## Cursos e Certificações 
 
