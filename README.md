@@ -1,4 +1,4 @@
-# Pedro Thiago Cristyan Silvério 
+# **Pedro Thiago Cristyan Silvério**
 
 ### Analista de CRM | Marketing | Automação | Jornada do Cliente | Planejamento 
 
