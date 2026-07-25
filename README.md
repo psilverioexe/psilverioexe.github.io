@@ -1,6 +1,6 @@
 # Pedro Thiago Cristyan Silvério 
 
-Analista de CRM | Marketing | Automação | Jornada do Cliente | Planejamento 
+### Analista de CRM | Marketing | Automação | Jornada do Cliente | Planejamento 
 
 Santo André - SP • (11) 94974-8349 • psilverioo@gmail.com • linkedin.com/in/psilverioexe/ 
 
