@@ -46,9 +46,9 @@ Estratégia de CRM • Copywriting • Automação de Marketing • Marketing Di
 
 ## Formação 
 
-### • Bacharelado em Turismo | Centro Universitário FAM | Concluído em 2022 
+• Bacharelado em Turismo - Centro Universitário FAM - Concluído em 2022
 
-### • Técnico em Comunicação Visual | ETEC José Rocha Mendes | Concluído em 2014 
+• Técnico em Comunicação Visual - ETEC José Rocha Mendes - Concluído em 2014
 
 ## Cursos e Certificações 
 
